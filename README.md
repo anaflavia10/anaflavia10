@@ -8,6 +8,5 @@ Meu nome é Ana Flavia Sila
 
 - ## Você pode entrar em contato comigo👽
 -  ana.sila@escola.pr.gov.br
-  ![](https://tenor.com/pt-BR/view/megamind-gif-26070434)
   
-     
+![]( https://media1.tenor.com/m/NeBbYuvg2EsAAAAC/megamind.gif)
